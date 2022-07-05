@@ -16,3 +16,7 @@
 ## Investments
 
 - [Will Ceolin](https://www.linkedin.com/in/wceolin): BRL 110,000.00
+
+## Invoices
+
+All invoices are available on [Google Drive](https://drive.google.com/drive/folders/11-643_32iRywZTDbjcITLoZWNrf_KgN-?usp=sharing).
